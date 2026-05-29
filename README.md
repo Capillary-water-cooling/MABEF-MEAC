@@ -21,3 +21,4 @@ Serialization "Harmony of Music and Acoustics" (E-book edition): https://kouji-m
 **Name**: Kouji Murakami (村上光治)
 **Affiliation**: IPL Intellectual Property Institute
 **Location**: 8-7-9-606 Higashinakahama, Joto-ku, Osaka 536-0023, Japan
+**[OFFICIAL ULTIMATUM]** The complete IPL Intellectual Property & Legal Portfolio, alongside the definitive license denial notice to the Japanese Government and GAFAM, is publicly enforced and verified here: ➔ [Official Facebook Real-Time Evidence](https://www.facebook.com/Talknohcello170929, https://www.facebook.com/IPLplusone) / [Official YouTube Sovereign Channel](https://www.youtube.com/@IPL-Capillary-MasterBag)
